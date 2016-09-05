@@ -1,6 +1,6 @@
 # Själv intro
 
-Kara vänner, jag heter Zhao, aka Fiona. Jag kommer från Kina. Jag bor i Solna med [David Hall](https://github.com/moonhouse) som arbetera på TV4. 
+Kära vänner, jag heter Zhao, aka Fiona. Jag kommer från Kina. Jag bor i Solna med [David Hall](https://github.com/moonhouse) som arbetera på TV4. 
 
 Jag var en Docker Meetup organizer i Kina. I arbetade för ett teknisk företag som ligger i Shanghai från min gammal lägenhet i Peking innan jag komt till Sverige.
 
