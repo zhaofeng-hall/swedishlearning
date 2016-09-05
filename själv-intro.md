@@ -2,7 +2,7 @@
 
 Kära vänner, jag heter Zhao, aka Fiona. Jag kommer från Kina. Jag bor i Solna med [David Hall](https://github.com/moonhouse) som arbetar på TV4. 
 
-Jag var en Docker Meetup organizer i Kina. Jag arbetade för ett tekniskt företag som ligger i Shanghai från min gamla lägenhet i Peking innan jag kom till Sverige.
+Jag var en Docker Meetup organizer i Kina. Innan jag kom till Sverige, arbetade jag för ett teknikföretag, som ligger i Shanghai, från min gamla lägenhet i Peking.
 
 Jag flyttade till Stockholm två månader sedan när det var sommar. Nu studerar jag svenska på skolan som heter Hermods nära mitt hem. 
 
