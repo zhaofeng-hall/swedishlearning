@@ -1,11 +1,11 @@
-# Mina systersbarn
+# Mina systerbarn
 
-Min yngre syster har två sonner som heter Ding och Yi. Ding är sex år äldre än Yi. Ding och Yi föddes i Beijing. Ding föddes i tidig sommar och Yi föddes i höst. 
+Min yngre syster har två söner som heter Ding och Yi. Ding är sex år äldre än Yi. Ding och Yi föddes i Beijing. Ding föddes tidigt på sommaren och Yi föddes på hösten. 
 
-Ding studerar i skolan nära hans hem. Han björtade hans ny skolaår på första september i det nyt skolahus. Han går till skolan med hans liten bror och hans mormor varje dag. Skolan björtar klockan åtta och slutar klockan tre på eftermiddagen. Han äter lunchen med hans kompisar i skolan. Efter skolan lekar han lego med Yi eller spelar han archery på det gym med hans coach. Han slutar läxa snabb och bra. Han ofta lässar många intressanta böcker om lego, robot och rocket. Ding är populär i hans kamraterna.
+Ding går i skolan nära sitt hem. Han började sitt nya skolår den första september i det nya skolhuset. Han går till skolan med sin lillebror och sin mormor varje dag. Skolan börjar klockan åtta och slutar klockan tre på eftermiddagen. Han äter lunch med sina kompisar i skolan. Efter skolan lekar han med lego med Yi eller övar bågskytte på ett gym med sin tränare. Han gör klart sina läxor snabbt och bra. Han läser ofta många intressanta böcker om lego, robotar och raketer. Ding är populär bland sina kamrater.
 
-Yi är fyra år gammal men han vill inte gå till kindergarten. Han gilla att åka parken med hans mormor och leka med hans vänner utdorra. Yi alltide badar förr sova. Han pratar och äter mycket. 
+Yi är fyra år gammal men han vill inte gå till förskolan. Han gillar att gå till parken med sin mormor och leka med sina vänner utomhus. Yi badar alltid innan han går och lägger sig. Han pratar och äter mycket. 
 
-Ding och Yi är syskon men de är ganska olika. Ding är tyslåten men Yi är pratasam. Ding är blyg men Yi är rolig. Ding är mer hjälpsam och generäs än Yi. 
+Ding och Yi är syskon men de är ganska olika. Ding är tystlåten men Yi är pratsam. Ding är blyg men Yi är rolig. Ding är mer hjälpsam och generös än Yi. 
 
 Dessa två barn är trevliga, duktiga och söta. David och jag älskar dem.
