@@ -1,4 +1,4 @@
-# Min systersbarn
+# Mina systersbarn
 
 Min yngre syster har två sonner som heter Ding och Yi. Ding är sex år äldre än Yi. Ding och Yi föddes i Beijing. Ding föddes i tidig sommar och Yi föddes i höst. 
 
