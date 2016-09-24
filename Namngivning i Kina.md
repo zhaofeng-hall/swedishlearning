@@ -1,21 +1,21 @@
 # Namngivning i Kina
 
-Kinesiska användar olika namngivning. Namngivning i Kina är mycket intressant.
+Kinesiska använder en annan namngivning än i väst. Namngivning i Kina är mycket intressant.
 
-Ett typiskt kinesiskasnamn har två avdelningar, efternamn och förnamn. Vi talar och skrivar efternamn framfär förnamn.
+Ett typiskt kinesiskt namn har två delar, efternamn och förnamn. Vi talar och skriver efternamn framför förnamn.
 
-Vanligen i Kina är efternamn single-tecken som Feng(冯), Zhang(张) och Li(李). Några personers har förening efternamn som Murong(慕容), Duanmu(端木) och Sima(司马). Förening efternamn kommer från gamla platser eller positioner. Många flerateckens namn försvinnade, men andra flerateckens namn blir singulartecken namn. 
+Efternamn i Kina skrivs vanligen med ett tecken som Feng(冯), Zhang(张) och Li(李). Några personer har sammansatta efternamn som Murong(慕容), Duanmu(端木) och Sima(司马). Sammansatta efternamn kommer från gamla platser eller titlar. Många flerteckensnamn försvinner medan andra flerteckensnamn blir enkelteckensnamn. 
 
-Kinesiska föräldrar gillar att ge namn till deras barn med tecknen från kända, gammla och stora böcker, t. ex, *Classic of Poetry(诗经)*, *Analects(论语)*, och *Chu Ci(楚辞)*. Böckerna har långa historia och många vackra ord.
+Kinesiska föräldrar gillar att ge namn till deras barn med tecknen från kända, gamla och stora böcker, t. ex, *Sångernas bok(诗经)*, *Analekterna(论语)*, och *Chu Ci(楚辞)*. Böckerna har långa historier och många vackra ord.
 
-Många kinesiska familjer har deras namnlistor. Namnlistorna listade olika tecknen för varje generation. Namnlistorna cyklade.   Personer kan vet deras positioner i familjen med listan.
+Många kinesiska familjer har arvnamn enligt namnlistor. Namnlistorna listar olika tecknen för varje generation. Namn återkommer cykliskt med några generationers mellanrum. Personer vet deras positioner i familjen med hjälp av listan.
 
-Några kinesiska namn har historiasaga. Några män som födds i 1949 har förnamn som heter 建国 med meningen av PRC founded. Några personer som födds på 1 oktober har förnamn som heter 国庆 med meningen av nationaldag.
+Några kinesiska namn har bakgrund i historiska händelser. Några män som föddes i 1949 har förnamn som heter 建国 som betyder *Folkrepublikens grundande*. Några personer som föds 1 oktober har förnamnet 国庆 som betyder *nationaldag*.
 
-Kinesiska förnamn också användar elements som sol, måne, vatten, metal, trä och eld. Mitt förnamn har metal, så många personer tyckte jag var en man innan de träffade mig.
+Kinesiska förnamn använder också element som sol, måne, vatten, metall, trä och eld. Mitt förnamn innehåller en del med betydelsen metall, så många personer trodde jag var en man innan de träffade mig.
 
-Nu har yngre generation nya och moderna namn. Många barns efternamn tar från färders efternamn och morers efternamn för att har nya efternamn. Dessa efternamn har två tecken men är inte förening efternamn.
+Nu har yngre generationer nya och moderna namn. Många barn får nya efternamn som är kombinationer av faderns och moderns efternamn. Dessa efternamn har två tecken men räknas inte som sammansatta efternamn.
 
-Kinesisk namngivning är komplicerad.
+Så kinesisk namngivning är komplicerad.
 
 
