@@ -17,5 +17,3 @@ Kinesiska förnamn använder också element som sol, måne, vatten, metall, trä
 Nu har yngre generationer nya och moderna namn. Många barn får nya efternamn som är kombinationer av faderns och moderns efternamn. Dessa efternamn har två tecken men räknas inte som sammansatta efternamn.
 
 Så kinesisk namngivning är komplicerad.
-
-
