@@ -1,6 +1,6 @@
 # Min stora familj
 
-Jag heter Zhao och är gifta med en svenska man som heter David.
+Jag heter Zhao och är gift med en svensk man som heter David.
 
 David och jag träffades 2014 när jag reste i Schweiz. I följd julen besökte jag hans familj och firade julen och nyår tillsammans. Tre månader senare, vi gifte oss i Kina när David träffade första gång min familj som bor i Beijing.
 
