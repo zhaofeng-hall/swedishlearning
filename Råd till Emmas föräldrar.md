@@ -2,15 +2,15 @@
 
 Hej, Emmas föräldrar!
 
-Det har blivit ett nationellt problem att ungdomar spenderar för mycket tid på att spela datorspel och blir isolaterade. Som mamma känner jag oron och förstår situationen. Det borde vara bra att vi diskuterar problemet och får några råd.
+Det har blivit ett nationellt problem att ungdomar spenderar för mycket tid **på** att spela datorspel och blir isolaterade. Som mamma känner jag oron och förstår situationen. Det borde vara bra att vi diskuterar problemet och några råd.
 
-Det är naturellt för barn och ungdomar att spel eller leka. Vi lärde oss mycket från leksaker och spel när vi var yngre. Självklart funkar samma sätt också för våra barn. Vi kan inte helt förbjuda barn att spela datorspel, tycker jag.
+Det är naturellt för barn och ungdomar att spela eller leka. Vi lärde oss mycket från leksaker och spel när vi var yngre. Självklart funkar samma sätt också **för** våra barn. Vi kan inte helt förbjuda barn att spela datorspel, tycker jag.
 
-Å andra sidan måste vi komma överens om att datorspel-missbruk är farlig för ungdomar och inleder många problem, både fysisk och psykologisk. Vi måste lösa problemen. Jag vill dela några tips med er.
+Å andra sidan måste vi komma överens **om** att datorspel-missbruk är farlig **för** ungdomar och inleder många problem, både fysisk och psykologisk. Vi måste lösa problemen. Jag vill dela några tips med er.
 
 För det första kollar ni alla datorspel som Emma spelar med sin kompis. Ni kan diskutera vilka spel som passar ungdomar och har bättre reputation. Hjälp barn att välja bra datorspel, t.ex. Minecraft som är roligt och har utbildningssyfte.
 
-För det andra är det klokt att ni kontrollerar Emmas eckopeng. Om hon inte kan få tillräckligt med pengar har hon mindre chans att köpa nya datorspel.
+För det andra är det klokt att kontrollera Emmas veckopeng. Om hon inte kan få tillräckligt med pengar har hon mindre chans att köpa nya datorspel.
 
 Det tredje rådet är att minska speltiden. Emma behöver tillräckligt med sömn för att vara glad och pigg. Ju mindre tid hon spelar desto bättre sömn kan hon få. Prata med Emma och skapa ett nytt dagligt schema som balanserar speltiden och sömn. När hon känner sig bättre vill hon motivera sig själv.
 
